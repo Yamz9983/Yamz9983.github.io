@@ -1,2 +1,2 @@
-# Yamz9983.github.io
+# YamzNitey.github.io
 my website
